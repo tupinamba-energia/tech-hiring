@@ -2,7 +2,7 @@
 
 **Modelo:** Totalmente Remoto.  
 **Empresa:** Tupi (Grupo WEG).  
-**Regime:** PJ.  
+**Regime:** PJ Full Remote.  
 **Faixa salarial:** R$ 20.000 a R$ 35.000/mês, de acordo com avaliação.
 
 ## ⚡ Sobre a Tupi
