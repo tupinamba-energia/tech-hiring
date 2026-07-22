@@ -1,6 +1,6 @@
 # 🚀 Engenheiro(a) de Software (Product & Architecture)
 
-**Vagas:** Pleno, Sênior e Staff.  
+**Vagas:** Sênior e Staff.  
 **Modelo:** Totalmente Remoto.  
 **Empresa:** Tupi (Grupo WEG).
 
